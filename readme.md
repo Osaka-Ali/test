@@ -1,3 +1,3 @@
-# Hi Bitches!
+# Hi Brave Souls!
 
 # hello
