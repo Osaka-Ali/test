@@ -1,3 +1,1 @@
-# Hi Brave Souls!
-
 # hello
